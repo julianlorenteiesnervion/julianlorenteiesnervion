@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Julian Lorente, currently studing computer science in Seville, Spain.
+- 👀 I’m interested in almost everything. I'm always trying to learn as much as possible.
+- 🌱 I’m currently learning computer science.
+- 📫 How to reach me: julianlorentefp@gmail.com
+- 😄 Pronouns: he / him
+- ⚡ Fun fact: don't tell me it's impossible to do something, I'll end up doing it.
